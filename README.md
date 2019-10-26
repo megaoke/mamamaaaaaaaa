@@ -1,0 +1,2 @@
+# mamamaaaaaaaa
+Mamak kau
